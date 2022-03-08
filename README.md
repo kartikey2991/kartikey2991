@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Kartikey
-- 👀 I’m interested in photography and cinematography
+- 👀 I’m interested in photography and cinematography and graphic design
 - 🌱 I’m currently learning software and web development
 - 💞️ I’m looking to collaborate on 
 - 📫 Mail me at kartikey.mnnit@gmail.com
